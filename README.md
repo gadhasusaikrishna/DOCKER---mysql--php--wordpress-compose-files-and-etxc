@@ -1,0 +1,1 @@
+for total process just check my linked in id here the link just check it :- https://www.linkedin.com/posts/gadhasu-sai-krishna24_wordpress-stack-with-docker-mysql-and-phpmyadmin-activity-7258562063185129472-vEKy?utm_source=share&utm_medium=member_desktop
